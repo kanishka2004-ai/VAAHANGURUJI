@@ -118,9 +118,9 @@ VaahanGURUJI/
 
   **Contact:-**
   
-  🔹Name : Amogh Shukla
+  🔹Name : Kanishka Saxena
   
-  🔹E-mail : amoghshukla548@gmail.com
+  🔹E-mail : kanishkasaxena2004@gmail.com
   
-  🔹Github : AmoghShukla
+  🔹Github : Kanishka2004-ai
   
